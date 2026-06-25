@@ -1,4 +1,4 @@
-📜 Privacy Policy & Terms of Service – [ConnectBot]
+📜 Privacy Policy & Terms of Service – [KaiRin]
 
 Utolsó frissítés: 2025.10.01
 
@@ -49,7 +49,7 @@ Kérdés esetén elérsz itt:
 
 Discord: [regedit404]
 
-Email: [realprogramer808@gmail.com]
+Email: [kairinbotofficalli@gmail.com]
 
 📑 Terms of Service (Felhasználási feltételek)
 1. Elfogadás
